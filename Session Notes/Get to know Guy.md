@@ -1,3 +1,14 @@
+# Prey and Provisions
+***Date:** January 30, 2025*
+
+## Players
+* DieAnna
+* Raven Madapple
+* Calahan
+* Odette 
+* Karas
+
+## Session Overview
 Guy is a grubby guy. Hes pretty regular by most peoples standards. He is in lust with a lady named Mira. But he definately could use a few lessons in respect. Guy uses the word heroic as a verb, e.g. "I heroic'ed all over you".
 
 Guy was first met by Raven and Calahan outside of the tents. They learned of his love for Mira and offered aid to help him serano her. The promised they would help Guy ~~kidnap~~ woo her by following her over the wall and into the ruined city beyond and helping her throw a beautiful picnic. 
