@@ -33,7 +33,14 @@ Cookies Souschef
 
 ## Known Names
 **Jefery** | Halfling  
-**Geofrey** | Ox  
-**Gerald** | Scout  
-**Geran** | Scout 
+**Geofrey** | Ox    
+**Gerald** | Scout   
+**Geran** | Scout   
  
+ ### Rhinuffalo Heard  
+ Clint  
+ Hilda  
+ Wendy  
+ Mrs. Stonethrax  
+ Baby Number 2  
+ D20  

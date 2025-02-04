@@ -2,11 +2,11 @@
 ***Date:** January 30, 2025*
 
 ## Players
-* DieAnna
-* Raven Madapple
-* Calahan
-* Odette 
-* Karas
+* DieAnna  
+* Raven Madapple  
+* Calahan  
+* Odette   
+* Karas  
 
 ## Session Overview
 Guy is a grubby guy. Hes pretty regular by most peoples standards. He is in lust with a lady named Mira. But he definately could use a few lessons in respect. Guy uses the word heroic as a verb, e.g. "I heroic'ed all over you".

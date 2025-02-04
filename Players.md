@@ -28,23 +28,23 @@ Julian is a half-orc paladin. He is carrying a magical crystal flower reagentr.
 *Paladin 1 Tiefling*  
 Not much is known. Seems to have an interest in making camp hooch. 
 
-**Calahan** | Caroline
-*Sorcerer 1 *Unknown**
+**Calahan** | Caroline  
+*Sorcerer 1 *Unknown**  
 Calahan is his momies precious. Likes murder. Isnt sleeping well having vivid 
-nightmares.
+nightmares.  
 
-**DieAnna** | Katherine
-*Monk 1 *Unknown**
+**DieAnna** | Katherine  
+*Monk 1 *Unknown**  
 Monk with an affinity for gambling. Can be violent and will never hesitate to 
-kick down a door.
+kick down a door.  
 
-**Odette Verbor** | Nadia
-*Cleric 1 Vapir*
-A vampire but not much is known about what that truly means. Out to kill the one that took her soul.
+**Odette Verbor** | Nadia  
+*Cleric 1 Vapir*  
+A vampire but not much is known about what that truly means. Out to kill the one that took her soul.  
 
-**Raven Madapple** | Danielle
-*Rogue 1 *Unknown**
-A vampire but not much is known about what that truly means. Out to kill the one that took her soul.
+**Raven Madapple** | Danielle  
+*Rogue 1 *Unknown**  
+A vampire but not much is known about what that truly means. Out to kill the one that took her soul.  
 
 
 
