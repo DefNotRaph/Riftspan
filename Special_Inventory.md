@@ -1,0 +1,4 @@
+Instructor’s Lens of Insight
+Properties:
+Name Recall: When the wearer looks at a creature they’ve met before, the lens softly whispers the creature’s name and a brief, magically generated “note” about them (e.g., “Callahan—special little boy, fond of dramatic pauses.”). This feature works best with humanoids, often producing hilariously blunt or overly formal summaries.
+Piercing Appraisal: Once per day, the wearer can focus through the lens to gain advantage on an Investigation or Insight check against a creature or object. Additionally, they receive a brief magical impression—such as an emotional state (“mild anxiety”) or subtle detail (“arcane residue detected”)
